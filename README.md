@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm currently working in Aston, St. Petersburg<br>First year student of Master Degree in Computer Science<br>Would be nice to contact by email: lysenko_iakov@yahoo.com<br>I'm in love with surfing, reading, meditation, coffee and traveling.<br><br> Languages: <br>Russian - native <br> English - C1 <br> Spanish - B2 <br><br>Previously M.D. in Internal Medicine. 
+I'm currently working in T-Bank, St. Petersburg<br>First year student of Master Degree in Computer Science<br>Would be nice to contact by email: lysenko_iakov@yahoo.com<br>I'm in love with surfing, reading, meditation, coffee and traveling.<br><br> Languages: <br>Russian - native <br> English - C1 <br> Spanish - B2 <br><br>Previously M.D. in Internal Medicine. 
 
 
 ## 🌐 Socials:
